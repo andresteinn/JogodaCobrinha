@@ -1,3 +1,3 @@
-# Joguinho da cobrinha!!!🐍🐍🐍#
+# Joguinho da cobrinha!!!🐍🐍🐍
 
 - Resultado da aula do DIO.
